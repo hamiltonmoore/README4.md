@@ -1,0 +1,1 @@
+This is the second file, in connect with my struggle time. 
